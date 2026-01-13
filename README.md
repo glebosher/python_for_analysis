@@ -1,0 +1,1 @@
+Ссылка на датасет: https://drive.google.com/file/d/19t0fxs0PyA0dPbLiN3Rh6rFPmi2qqN1P/view?usp=sharing
